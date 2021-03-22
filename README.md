@@ -3,4 +3,5 @@ BLazer
 
 ВЫполнил Жолобов ВЛадислав Евгеньевич ИТБ 2301-01-00
 
-https://sun9-64.userapi.com/impg/tv4Q40QzZlOFo6kTLzaNQaHnpNzyJBth43LPyg/nba9HaObwQo.jpg?size=750x741&quality=96&sign=8e69401eadcbd3d426d51ec5358bf321&type=album
+
+![image](https://user-images.githubusercontent.com/75520011/111985747-16a31b80-8b1e-11eb-85c1-3a29f0948a07.png)
